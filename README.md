@@ -1,1 +1,1 @@
-# mathewHaugMad400ClassWork
+# Mathew Haug MAD 400 Class Work
